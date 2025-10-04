@@ -1,4 +1,1 @@
-![alt image](https://files.catbox.moe/g6ljhp.png)
-𐔌   ♡ lᎥẜᧉ ⲓs ฅ pιasƗic 𐂯
-
-ꪱt's ・ f⍺ntaꭶtᎥc ꜝ  ♡⃞
+![alt image](https://files.catbox.moe/qi9f3x.jpg)
